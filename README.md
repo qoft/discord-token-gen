@@ -2,4 +2,4 @@
 discord token gen (WIP)
 
 
-if u see this dm qoft#0001 on discord for beta access :flushed:
+if u see this dm qoft#9999 if u see this :flushed:
